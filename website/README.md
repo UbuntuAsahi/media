@@ -1,0 +1,1 @@
+Website Hero image based on "Apple MacBook Pro SVG" by averywebdesign, licensed under [CC BY-SA 3.0](https://creativecommons.org/licenses/by-sa/3.0/): https://www.deviantart.com/averywebdesign/art/Apple-MacBook-Pro-SVG-275421698
